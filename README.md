@@ -12,7 +12,7 @@ Meu nome é 2230andr
 
 @andrieli3183
 
-
+https://media1.tenor.com/m/i7llTDaTPtUAAAAC/naruto.gif
 
 
 
